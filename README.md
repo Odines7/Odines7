@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Odin.
-- 👀 I’m interested in The whole universe, both cosmetics and technology. my advice, explore the cosmetics!
+- 👀 I’m interested in The whole universe, both cosmos and technology. my advice, explore the cosmos!
 - 🌱 I’m currently wandering purposely in the universe!
 - 💞️ I’m looking to collaborate on everything.
 - 📫 How to reach me, Twitter. @Tishk007
